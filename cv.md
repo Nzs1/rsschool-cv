@@ -4,6 +4,7 @@ __Kazakhstan__, Nur-Sultan
 
 * __Phone__ +77017730746
 * __E-mail__ nseksengaliyeva@gmail.com
+* [Linkedin](https://linkedin.com/in/nseksengaliyeva)
 
 __*EDUCATION*__
 ___
